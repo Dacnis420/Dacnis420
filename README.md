@@ -39,5 +39,3 @@ Sou uma desenvolvedora em formação, apaixonada por tecnologia e em constante e
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/jaine-nascimento-5275a4209)
 </div>
 
-<br><br><br><br><br><br><br><br><br><br>
-<br><br><br><br><br><br><br><br><br><br>
